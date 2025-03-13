@@ -1,1 +1,1 @@
-# J0es1ick.github.pages
+# J0es1ick.github.io
